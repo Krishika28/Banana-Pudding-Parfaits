@@ -1,0 +1,2 @@
+ In France, where the dish originated, parfait is made by boiling cream, egg, sugar and syrup to create a custard-like puree which is sometimes served in a parfait glass. The American version includes more ingredients like granola, nuts, yogurt and liqueurs made in combination with a topping of fruits or whipped cream that are layered and served in a tall glass.The oldest known recipe dates back to 1892 c le nom de l'autre aussi.
+ With fresh bananas, vanilla wafers and a snappy pudding mix, these creamy after-dinner sweets is the best.
